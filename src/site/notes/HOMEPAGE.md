@@ -2,22 +2,18 @@
 {"dg-publish":true,"permalink":"/homepage/","tags":["gardenEntry"]}
 ---
 
+## OTSUKA BASEMENT
+**Shared with my good friend Tomu!**
 
-> [!infobox]
-> # Name
-> ![[Image.png\|cover hsmall]]
-> ###### Stats
-> | Type | Stat |
-> | ---- | ---- |
-> | Test | Testing |
-> | Test | Testing |
-> 
-> ##### Stats 2
-> | Type | Stat |
-> | ---- | ---- |
-> | Test | Testing |
-> | Test | Testing |
+The Otsuka basement are the OCs me and Tomu made for our guro needs. Tomu's OCs are indicated by the little * ! 
 
-so yeah dw it just does its thing dw dw. now lets publicsh and see 
+They consist of:
 
-YIPPIE IT WORKS OK so lets  now put this for [[XIAOTOMU OC LAND/OTSUKA BASEMENT/YUKI\|YUKI]]
+- [[XIAOTOMU OC LAND/OTSUKA BASEMENT/OMI\|Omi Otsuka]]* (tbd)
+- [[XIAOTOMU OC LAND/OTSUKA BASEMENT/YUME\|Yume Otsuka]] (tbd)
+- [[XIAOTOMU OC LAND/OTSUKA BASEMENT/Yuki\|Yuki]]
+- [[XIAOTOMU OC LAND/OTSUKA BASEMENT/MARIE\|Marie]]* (tbd)
+- [[XIAOTOMU OC LAND/OTSUKA BASEMENT/RINA\|Rina Yamaguchi]] (tbd)
+- [[XIAOTOMU OC LAND/OTSUKA BASEMENT/ZETTA\|Zetta]]* (tbd)
+
+
