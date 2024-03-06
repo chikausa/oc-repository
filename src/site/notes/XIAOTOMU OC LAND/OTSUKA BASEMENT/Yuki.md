@@ -3,7 +3,7 @@
 ---
 
 # Yuki
-> [!infobox]
+> [!infobox]+
 > # Yuki 
 > #### Y-0036
 > ![yuki.png|cover hbig](/img/user/attachments/yuki.png)
