@@ -18,4 +18,6 @@
 > | Test | Testing |
 > | Test | Testing |
 
-so yeah dw it just does its thing dw dw. now lets publicsh and see
+so yeah dw it just does its thing dw dw. now lets publicsh and see 
+
+YIPPIE IT WORKS OK so lets  now put this for [[XIAOTOMU OC LAND/OTSUKA BASEMENT/YUKI\|YUKI]]
