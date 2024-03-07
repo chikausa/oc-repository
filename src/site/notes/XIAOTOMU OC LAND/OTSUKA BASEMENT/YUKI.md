@@ -22,10 +22,11 @@ A lab rat experimented on and shot up with some unknown chemicals that make his 
 His pain and pleasure receptors are all messed up thanks to brutal torture from young. That being said, he's pretty terrified of pain.
 
 
-> [!quote|mark] Yuki
+> [!quote] Yuki
 > A quote about myself ~ ? There's nothing that important about me -- I'm just here to help Omi with his experiments and be by his side for the rest of my life! <3
 
-> [!quote|mark] Omi 
+
+> [!quote] Omi 
 > “Despite the cruel torture Yuki had endured, he is a sunny, lovely boy that embodies positivity and love for his friends and family. There’s nothing I won’t do to make Yuki happy, he is my blessing.”
 
 
