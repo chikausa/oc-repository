@@ -55,7 +55,7 @@ This eventually lead to Omi destroying the laboratory and saving Yuki (and Marie
 ###### [[XIAOTOMU OC LAND/OTSUKA BASEMENT/YUME\|Yume Otsuka]]
 
 ###### [[XIAOTOMU OC LAND/OTSUKA BASEMENT/ZETTA\|Zetta]]
-
+ 
 
 ### Trivia
 - *Looooves* to watch violent anime. A big fan of *Dokuro-chan*, though he doesn't know the plot at all.
