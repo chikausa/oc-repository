@@ -49,15 +49,24 @@ They tested several types drugs on him, combining in his system into his incredi
 This eventually lead to Omi destroying the laboratory and saving Yuki (and Marie) from the researchers.
 
 ### Family + Relationships
-###### [[REN\|Ren [lastname]]]
+###### [[REN\|Ren Lastname ]]
+Yuki's long lost big brother. He has some fleeting memories of him, and when Ren finds him again, he really wants to take some time to get to know him! He wishes he knew what it would have been like to be his little brother...
 
 ###### [[XIAOTOMU OC LAND/OTSUKA BASEMENT/OMI\|Omi Otsuka]]
+The love of his life, his savior, the person who he adores more than anything else in this world. Yuki would gladly and happily let Omi take him apart again and again as long as he could see him smile, even if one day his pain comes back.
 
 ###### [[XIAOTOMU OC LAND/OTSUKA BASEMENT/YUME\|Yume Otsuka]]
+Omi's baby sister! She's very sweet, and kind, even if sometimes she could be a little scary. She takes good care of him and Marie, and Yuki can relate to her with how much they both love Omi so much.
+
+###### [[XIAOTOMU OC LAND/OTSUKA BASEMENT/MARIE\|Marie]]
+Marie is the closest thing Yuki has to a big sister! Since they were some of the few who survived the laboratory, and were rescued by Omi together, Yuki always sticks close to Marie. He cares about her a lot and worries about her sometimes as well, especially when she gets too anxious.
 
 ###### [[XIAOTOMU OC LAND/OTSUKA BASEMENT/ZETTA\|Zetta]]
- 
+His baby sibling! Well, sort of. He didn't get to spend that much time with them before Omi took down the operation, but he's happy they're safe, and has nothing but wonderful memories with them as well. Sometimes, he asks them to turn into silly anime characters from the animes he likes.
+
+###### [[XIAOTOMU OC LAND/OTSUKA BASEMENT/RINA\|Rina Yamaguchi]]
+He's not really *sure* about Rina, but she seems really nice, and he's glad that she took such good care of Zetta before they returned back to their family. She's a little squeamish, so Yuki can't help but want to cut himself open around her for giggles........
 
 ### Trivia
 - *Looooves* to watch violent anime. A big fan of *Dokuro-chan*, though he doesn't know the plot at all.
-- Can't read.
+- Can't read. Never learned to!
