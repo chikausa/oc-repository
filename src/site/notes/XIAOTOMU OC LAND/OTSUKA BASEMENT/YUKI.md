@@ -11,6 +11,7 @@
 > |  |  |
 > | ---- | ---- |
 > | Age | 16 |
+> | Date of Birth | 5th March |
 > | Likes | cheesecake, [[XIAOTOMU OC LAND/OTSUKA BASEMENT/OMI\|Omi]], his family |
 > | Dislikes | vegetables |
 > | Family | [[XIAOTOMU OC LAND/OTSUKA BASEMENT/MARIE\|Marie]] (Adopted sister)<br>[[XIAOTOMU OC LAND/OTSUKA BASEMENT/ZETTA\|Zetta]] (Adopted sibling)<br><br>[[REN\|Ren]] (Biological brother) |
